@@ -1,5 +1,1 @@
-Dhruv Matariya
-
-new file
-
-conflict 
+My Name is Dhruv R.
